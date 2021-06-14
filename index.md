@@ -12,9 +12,13 @@ This is me:
 ![image](https://user-images.githubusercontent.com/82282788/121886742-ca621480-cce3-11eb-97c0-1c620180ab30.png)
 
 Some places you can contact me:
+
 Twitter: Sarthakr1
+
 Instagram: sarthak._r
+
 Github: SarthakRoongta
+
 Devpost: sarthakroongta
 
 And now, a bit about me: 
