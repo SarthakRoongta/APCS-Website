@@ -22,7 +22,7 @@ Devpost: sarthakroongta
 
 And now, a bit about me, my brag sheet: 
 
-I am a black belt in taekwondo, and I've been doing it for about 9 years. It is something that I am very passionate about, and love doing. 
+I am a black belt in taekwondo, and I've been doing it for about 10 years. It is something that I am very passionate about, and love doing. 
 
 ![image](https://user-images.githubusercontent.com/82282788/121889392-2da17600-cce7-11eb-86a7-6d2c98d8ace1.png)
 
