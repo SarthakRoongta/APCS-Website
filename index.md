@@ -28,7 +28,7 @@ I am a black belt in taekwondo, and I've been doing it for about 10 years. It is
 
 I also teach at the same place I go to taekwondo. It is a really interesting experience because I get to teach people with the knowledge that I've built up over a long period of time and experience that I've built up over a long time. 
 
-Something interesting about me is that I love the Pokémon franchise, have played every game, and can name pretty much every pokemon up until the 8th generation, if prompted with some sort of description.
+I got the silver award for 50,000 points on Cyberstart America in the 2021-2022 competition year. 
 
 I also used be an ice skater!
 
